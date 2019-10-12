@@ -5,7 +5,7 @@ title: Love Reincarnated
 
 **Chapter 1: Madness**
 
-![Madness](/img/Madness.jpg)
+![Madness](/img/Madness.jpg =320x260)
 
 Not that I had walked through those narrow streets before, it seemed strange. There was something in those suburbs that was attracting me with a force stronger than gravity. I didn’t know where I was going, and it was the winds whispering the directions in my ears. It was one of those moments when brain doesn’t work, and it is the heart that takes the lead. _Is it wise to follow my heart in an unknown land? Are these the positive signs of the universe or am I just being a fool? Should I go ahead anyway? No, I probably shouldn't. Or perhaps, I should._ Random crazy thoughts were diving deep down my mind. My heart was pounding faster than a train on a rickety track. I had no idea what the dangers lay ahead. I was forcing myself into the horrors of bizarreness.
 
@@ -19,7 +19,7 @@ I was so lost daydreaming that I didn’t even realize I was drenched in cold sh
 
 **Chapter 2: The Clue**
 
-![The Clue](/img/The Clue.gif)
+![The Clue](/img/The Clue.gif =320x260)
 
 I must say I was a difficult person to understand at that time. People of my age appeared to enjoy life—yes, at least they appeared so by their activities on social media. When I make remembrance of my life, I was busy doing the treasure hunt in an unknown land. I seemed to be following my heart, which had gone fishing a long time ago with no intent to further return. I didn’t regret what I was doing except for the moments when I had to pay the price. For that particular moment, the cost was high fever. I dried myself off after reaching the apartment, put on some warm clothes and slipped inside the blanket, but the fever didn’t want to show mercy on my poor soul. I was shivering terribly as my body temperature was rising. I felt helpless like a baby who was craving for mother’s care. And mother’s first advice in this situation would have been to take medicines. So I dared to get up and took aspirin and paracetamol. Luckily, I survived with my mother’s first advice, but my heart didn’t seem to agree with what her second suggestion would be: stop all the lunatic acts.
 
@@ -31,7 +31,7 @@ I am a very patient person; nevertheless, I could hardly wait to reach there. Ev
 
 **Chapter 3: The Girl, My Girl**
 
-![My Girl](/img/The Girl, My Girl.jpg)
+![My Girl](/img/The Girl, My Girl.jpg =320x260)
 
 When expectations meet reality, most of our dreams are shattered. The vision that lay in front of me was definitely not up to my expectations. It wasn’t any urban park that I had come to; I had come to a burial ground. _Is this burial ground my destiny?_ Even the thoughts scared the hell out of me. Maybe it was time to stop all the madness, but somehow the heart didn’t seem to agree to that. I hated myself more than ever for doing all this. But I had started an expedition and there was no way I could leave everything in a mystery. I had to finish what I had started, even if it meant a war against the millions of ghosts.
 
@@ -45,7 +45,7 @@ I lay senseless on the floor for a very long period of time. As I stayed motionl
 
 **Chapter 4: A Step Ahead**
 
-![Step Ahead](/img/A Step Ahead.jpg)
+![Step Ahead](/img/A Step Ahead.jpg =320x260)
 
 All the inferred possibilities constructed me huge expectations. These expectations hinted a new journey to begin. I wasn’t sure of my destination and I knew the path to it would be the most difficult one. Nevertheless, I had gathered enough courage to embark on the voyage. My high spirits made me feel like a warrior who has only two choices in the battlefield: fight a great war or die a cowardly death. I was definitely not a coward, so I chose the first obvious option. I didn’t have any definite plan, but I had a strong will—a will to do the impossible. I wasted no time on further imaginations. I left my apartment at once to visit the Kings Forest Park. I booked a cab, took the same route as before, and in the same duration of time, I arrived at the same graveyard. Everything was similar, except that I was over excited about my findings. I controlled my excitement and went inside without any hesitation. The graveyard was very different from the previous time. There were many visitors and no sign of melancholy existed. I performed a deep inspection of the graveyard paying attention to the every single detail. I gazed over the graves of Mr. & Mrs. Parkinson closely. I read the inscriptions aloud in my mind. I checked out some other tombs, and then got out of the graveyard to search the surroundings.
 
@@ -97,7 +97,7 @@ The description sure as hell ringed a bell. The first thought came to me instant
 
 **Chapter 5:  The Old Lady Hunt**
 
-![Old Lady Hunt](/img/The Old Lady Hunt.jpg)
+![Old Lady Hunt](/img/The Old Lady Hunt.png =320x260)
 
 When it comes to making plans, I firmly believe in what Christopher Nolan’s Joker has said, “Do I really look like a guy with a plan? You know what I am? I'm a dog chasing cars. I wouldn't know what to do with one if I caught it! You know, I just... *do* things.” Nonetheless, I assumed that day I had a very straightforward plan to execute: find the old lady and get her help in finding my girl. A very hypothetical plan in the eye of any normal person, but in my perspective, it was an idea supported by immovable pillars of convictions. So I did what any visionary person (or a crazy person, but aren’t all visionary people crazy?) would have done. I went back to the former neighbourhood and started hunting that old lady in the streets. I passed across all the blocks, looked around every corner, and waited in front of every house. I kept on looking for her in the morning, afternoon and the evening. I followed my instincts everywhere I could, but that old lady was nowhere to be seen. I repeated the same cycle for the second day, the remaining week, and the remaining month, however I had no luck for an encounter.
 
@@ -186,7 +186,7 @@ She didn’t utter a word for the next half an hour. She enjoyed rounds after ro
 
 **Chapter 6: Eureka**
 
-![Eureka](/img/Eureka.gif)
+![Eureka](/img/Eureka.gif =320x260)
 
 The final chapter of any invention is the most difficult one. There are so many assumptions to consider, a lot of exceptions to make, great patience required, and the probability of failure is higher than the success. If the invention, however, is done right, it has the power to change mankind. My journey was no less than any invention or discovery. I had taken a break from a handsome job, abandoned my social life, and was roaming around like crazy for past one year in search of someone who might not even exist. There were a few questions that constantly popped up in my mind at that time. _How far was I willing to go in the search of my love? Till the end of my life and beyond, _would be my immediate answer. _Will I do justice to everyone by this lunatic act of mine? There is no purpose of leading a void life. I will be complete only when I am successful in my mission. Everyone will understand this eventually. _God! I must be the most stubborn son ever born. I felt very proud of myself. I had the courage of my convictions to continue my journey. And when the determination is very strong, no destination is far enough.
 
