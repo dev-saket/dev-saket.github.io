@@ -1,7 +1,7 @@
 ---
 layout: post
 title: A Thorny Way To Heaven
-image: /img/AThornyWayToHeaven.jpeg
+image: /img/AThornyWayToHeaven.jpg
 ---
 They say, “When poverty arrives at the door, Love flies out of the window.” Beggars don’t fall in love and even if they do, who the hell in this world cares? Not all men in this world are born to love. Some of us are just born to hate.
 
