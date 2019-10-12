@@ -10,7 +10,7 @@ This story applies pretty much in our real life in our day to day relationships.
 The research shows that, out of all things, we devalue people the most in our life. Mostly, we pay attention to worldly pleasures that is only temporary. It is often too late to realise what we have lost. So, this year let's not lose too many things in our life. Let's try to recover what we have lost. Let's reach out to people instead of thinking alone. It's never too late for anything. New year is never new unless we start doing things differently. Let's make 2018 a grand one. Wish you all a happy and prosperous new year!!
 😘😘😘
 
-............
+---
 
 Not a long time ago, I was deadly sick. I can't remember if it was a dream or imagination of my unconscious mind. I stood teetering on the edge of abyss. Everywhere else was white and void. That was not the world we live in. I felt goose bumps as I walked through the edge of wilderness. I wasn't sure what I was going to face. I had hardly taken a few steps when I heard a deep voice from behind, "What do you seek?"
 
