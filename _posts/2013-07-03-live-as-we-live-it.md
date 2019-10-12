@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Life As We Live It
-image: /img/LifeAsWeLiveIt.jpg
+image: /img/LiveAsWeLiveIt.jpg
 ---
 
 I closed my eyes and all I could hear was voices, voices of hatred. There was darkness in front of my eyes and I wanted to sleep but those voices wouldn’t let me. Those were the voices of my loved ones whom I had failed. I wish I had lived up to their expectations. I wish I had made everyone happy but life is not always fair to everyone. Some born with golden spoon live it happily. Some learn to live through its complexities and some keep fighting till the end with the hope of something better. I fall in third category.
