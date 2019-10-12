@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Life: As We Live It
+title: Life As We Live It
 image: /img/LifeAsWeLiveIt.jpg
 ---
 
